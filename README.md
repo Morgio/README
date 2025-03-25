@@ -1,9 +1,9 @@
 # README
-<p align="center">C+H Freely!<br>Interact freely (preferred whisper) I love to chat ^^<br>Need to vent? Whisper to ask  ^0^</p>
+<h2 align="center">C+H Freely!<br>Interact freely (preferred whisper) I love to chat ^^<br>Need to vent? Whisper to ask  ^0^</h2>
 
 ###
 
-<p align="left">Wanna learn more about me? Go check out my strawpage in my bio!</p>
+<h6 align="left">Wanna learn more about me? Go check out my strawpage in my bio!</h6>
 
 ###
 
@@ -17,14 +17,14 @@
 
 ###
 
-<p align="left">Any Pronouns, aroace, Minor alert!!</p>
+<h6 align="left">Any Pronouns, aroace, Minor alert!!</h6>
 
 ###
 
-<p align="left">I love emojicons ^_^ so.. I might use them a lot... :P</p>
+<h6 align="left">I love emojicons ^_^ so.. I might use them a lot... :P</h6>
 
 ###
 
-<p align="left">Whisper if you want any of my socials not presenting them for safety reasons</p>
+<h6 align="left">Whisper if you want any of my socials not presenting them for safety reasons</h6>
 
 ###
