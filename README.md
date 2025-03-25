@@ -3,7 +3,7 @@
 
 ###
 
-<h6 align="left">Wanna learn more about me? Go check out my strawpage in my bio!</h6>
+<h2 align="left">Wanna learn more about me? Go check out my strawpage in my bio!</h2>
 
 ###
 
@@ -17,14 +17,14 @@
 
 ###
 
-<h6 align="left">Any Pronouns, aroace, Minor alert!!</h6>
+<h2 align="left">Any Pronouns, aroace, Minor alert!!</h2>
 
 ###
 
-<h6 align="left">I love emojicons ^_^ so.. I might use them a lot... :P</h6>
+<h2 align="left">I love emojicons ^_^ so.. I might use them a lot... :P</h2>
 
 ###
 
-<h6 align="left">Whisper if you want any of my socials not presenting them for safety reasons</h6>
+<h2 align="left">Whisper if you want any of my socials not presenting them for safety reasons</h2>
 
 ###
