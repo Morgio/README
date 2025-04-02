@@ -1,5 +1,5 @@
 # README
-<h2 align="center">C+H Freely!<br>Interact freely (preferred whisper) I love to chat ^^<br>Need to vent? Whisper to ask  ^0^</h2>
+<h2 align="center">C+H is encouraged I appreicate it!<br>Interact freely (preferred whisper) I love to chat ^^<br>Need to vent? Whisper to ask  ^0^</h2>
 
 ###
 
