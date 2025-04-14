@@ -1,7 +1,9 @@
 <p align="center">Hey gangy heres my links <br>
 <a href="https://allaboutmorgio.straw.page/">Strawpage/</a>
 <a href="https://en.pronouns.page/@Morgio">Pronouns/</a>
-<a href="https://morgio.atabook.org/">Atabook</a>
+<a href="https://morgio.atabook.org/">Atabook</a><br>
+DNI: Like really werid people, 18+, proshippers or drkshippers wtv they r called, neo-nazi (its crazy how many of them i've met on pony town)<br>
+  Im looking for friends rn so if you're interested and not on my dni list hmu
 </p>
 
 ###
