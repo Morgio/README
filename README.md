@@ -1,30 +1,13 @@
-# README
-<h2 align="center">C+H is encouraged I appreicate it!<br>Interact freely (preferred whisper) I love to chat ^^<br>Need to vent? Whisper to ask  ^0^</h2>
+<p align="center">Hey gangy heres my links <br>
+<a href="https://allaboutmorgio.straw.page/">Strawpage/</a>
+<a href="https://en.pronouns.page/@Morgio">Pronouns/</a>
+<a href="https://morgio.atabook.org/">Atabook</a>
+</p>
 
 ###
 
-<h2 align="left">Wanna learn more about me? Go check out my strawpage in my bio!</h2>
-
-###
-
-<br clear="both">
-
-<img align="right" height="200" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT6nODVt9Kwvev1N8nFfIIl9mL3THOY9tEobg&s"  />
-
-###
-
-<img align="right" src="https://visitor-badge.laobi.icu/badge?page_id=Morgio.Morgio&left_color=black&right_color=dimgray&left_text=Views"  />
-
-###
-
-<p align="left">Any Pronouns, aroace, Minor alert!!</p>
-
-###
-
-<p align="left">I love emojicons ^_^ so.. I might use them a lot... :P</p>
-
-###
-
-<p align="left">Whisper if you want any of my socials not presenting them for safety reasons</p>
+<div align="center">
+  <img height="200" src="https://i.pinimg.com/736x/2e/14/43/2e14430b02b1f4c520eae67d3f83c370.jpg"  />
+</div>
 
 ###
