@@ -4,7 +4,8 @@
 <a href="https://morgio.atabook.org/">Atabook</a><br>
 DNI: Like really werid people, 18+, proshippers or drkshippers wtv they r called, neo-nazi (its crazy how many of them i've met on pony town)<br>
   Im looking for friends rn so if you're interested and not on my dni list hmu<br>
-  Oh yeah C+H is fine jus ask to cover
+  Oh yeah C+H is fine jus ask to cover<br>
+  <strong>DO NOT copy/take inspo w/o permission, though i dont mind MINOR inspo</strong>
 </p>
 
 ###
